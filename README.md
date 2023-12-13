@@ -36,7 +36,7 @@ Pour exercer ces droits, veuillez nous contacter.
 - Les mises à jour seront communiquées via l'application ou le site web.
 
 ## 8. Contact
-Pour toute question, contactez-nous à [email protected]
+Pour toute question, contactez-nous à nearby76000@gmail.com
 
 ## 9. Conformité au RGPD
 Nous respectons les principes du RGPD dans la gestion des données des entreprises.
